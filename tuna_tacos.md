@@ -22,7 +22,7 @@
 For the Tuna
 - Combine tuna cubes with other marinade ingredients in a small bowl.
 - Toss to coat and let sit while you prep everything else.
-- For the Tacos
+For the Tacos
 - Combine vegetables with lime juice, olive oil, salt & pepper in a medium bowl and set aside.
 - Heat a skillet over medium heat and cook tuna with marinade for 2 minutes per side, until just cooked through.
 - While tuna cooks, combine avocado, yogurt and sriracha in a separate small bowl and mash together until fully combined.
