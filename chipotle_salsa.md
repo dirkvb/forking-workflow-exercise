@@ -2,7 +2,7 @@
 
 The perfect salsa for your tacos.
 
-Ingredients
+List of ingredients
 
 - chipotles (duh!)
 - tomatoes
